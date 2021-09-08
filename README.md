@@ -2,7 +2,7 @@ About me: 👻
 - I'm a IT undergraduate at Sri lanka Institute of Information Technology, Colombo.
 - I love learning about new technologies and recently I've been fond of problem solving as well.
 
-- I'm currently working on some cool projects 😎
+- I'm currently working on some cool projects 🙃
 
 Contact me:
 it21026416@my.sliit.lk
